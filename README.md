@@ -1,4 +1,4 @@
-Hi there, I’m Léa 👋🏾
+Hi there, I’m Léaticia NGAYOU 👋🏾
 
 👩🏾‍💻 Aspiring Software Engineer | AI & Big Data Student
 
